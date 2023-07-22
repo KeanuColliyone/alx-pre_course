@@ -1,1 +1,1 @@
-Gogeta SSj4 vs Nightmare SSJ4
+My first readme
